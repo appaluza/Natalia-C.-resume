@@ -22,7 +22,7 @@
 
 **WORK EXPERIENCE**
 
-_9/2015 - now aNmoda Ltd, (Tokyo, Japan)_ 	
+_9/2015 - now   aNmoda Ltd, (Tokyo, Japan)_ 	
 Executive assistant 
 
 * International sales
@@ -36,7 +36,7 @@ Executive assistant
 * Photography session organization
 * Sales Negotiations 
 
-_9/2014 – 8/2015  ANA Trading, USA,  (Torrance, CA)_                                                                                     
+_9/2014 – 8/2015   ANA Trading, USA,  (Torrance, CA)_                                                                                    
 Sales Representative
 
 * B2B sales, brokerage sales 
@@ -51,7 +51,7 @@ Sales Representative
 * Competitor Analysis 
 * Time management skills
 
-_6/2011 – 2/2014 Autocom Japan Inc.,  (Yokohama, Japan)_                                                                                
+_6/2011 – 2/2014   Autocom Japan Inc.,  (Yokohama, Japan)_                                                                               
 Sales Representative and Business Development manager 
 
 * Business to business & Business to client sales
