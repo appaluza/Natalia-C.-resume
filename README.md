@@ -51,21 +51,21 @@ Sales Representative
 •	Competitor Analysis 
 •	Time management skills
 
-_ 6/2011 – 2/2014 Autocom Japan Inc.,  (Yokohama, Japan)_                                                                                
+_6/2011 – 2/2014 Autocom Japan Inc.,  (Yokohama, Japan)_                                                                                
 
 Sales Representative and Business Development manager 
 
-•	Business to business & Business to client sales
-•	Customer support
-•	Maintained relationships with customers resulting in future sales
-•	Discussing customer needs and advising them the most suitable vehicle
-•	Located new clients by cold calling, utilizing social network websites, internet data
-•	Market research and forecasting sales volumes depending on market, political, and economical situations
-•	Reached monthly individual and team sales targets
-•	Negotiated prices with partners
-•	Prepared documentation for shipment and customs clearance 
-•	Assisted with the creation of advertisement to reach new markets and grow our market internationally
-•	Translating documents and manuals
-•	Coaching new staff members
+* Business to business & Business to client sales
+* Customer support
+* Maintained relationships with customers resulting in future sales
+* Discussing customer needs and advising them the most suitable vehicle
+* Located new clients by cold calling, utilizing social network websites, internet data
+* Market research and forecasting sales volumes depending on market, political, and economical situations
+* Reached monthly individual and team sales targets
+* Negotiated prices with partners
+* Prepared documentation for shipment and customs clearance 
+* Assisted with the creation of advertisement to reach new markets and grow our market internationally
+* Translating documents and manuals
+* Coaching new staff members
 
 
