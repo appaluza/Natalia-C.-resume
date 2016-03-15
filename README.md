@@ -1,7 +1,4 @@
-# Natalia-Clemente -resume
-ADA academy 
-
-Natalia Clemente
+# Natalia Clemente Resume
 
 732 W Imperial Ave, Apt 22 | El Segundo, CA, 90245 | 310-695-0499 | appaluza@gmail.com
 
