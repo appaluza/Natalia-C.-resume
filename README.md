@@ -6,6 +6,7 @@
 **EDUCATION**
 
 9/2010 – 6/2011 Niigata University of Management (Research Field: Marketing) 
+
 9/2005 – 8/2010 Far Eastern University of Humanities (Bachelors in Linguistics) 
 
 **SKILLS**
@@ -21,7 +22,7 @@
 
 **WORK EXPERIENCE**
 
-aNmoda Ltd, (Tokyo, Japan) 	9/2015 - now
+_9/2015 - now aNmoda Ltd, (Tokyo, Japan)_ 	
 Executive assistant 
 
 * International sales
@@ -35,7 +36,7 @@ Executive assistant
 * Photography session organization
 * Sales Negotiations 
 
-ANA Trading, USA,  (Torrance, CA)                                                                                                                9/2014 – 8/2015 
+_9/2014 – 8/2015  ANA Trading, USA,  (Torrance, CA)_                                                                                     
 Sales Representative
 
 •	B2B sales, brokerage sales 
@@ -50,7 +51,8 @@ Sales Representative
 •	Competitor Analysis 
 •	Time management skills
 
-Autocom Japan Inc.,  (Yokohama, Japan)                                                                                                  6/2011 – 2/2014
+_ 6/2011 – 2/2014 Autocom Japan Inc.,  (Yokohama, Japan)_                                                                                
+
 Sales Representative and Business Development manager 
 
 •	Business to business & Business to client sales
