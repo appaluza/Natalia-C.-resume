@@ -52,7 +52,6 @@ Sales Representative
 •	Time management skills
 
 _6/2011 – 2/2014 Autocom Japan Inc.,  (Yokohama, Japan)_                                                                                
-
 Sales Representative and Business Development manager 
 
 * Business to business & Business to client sales
