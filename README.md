@@ -10,13 +10,13 @@ Far Eastern University of Humanities                    Bachelors in Linguistics
 
 SKILLS
  
-* ➢	Sales experience
-* ➢	Business development
-* ➢	Market research
-* ➢	Excellent time management
-* ➢	Multicultural communication skills
-* ➢	Translations expert
-* ➢	Computer skills: Microsoft Word, Excel, Power Point, Adobe Photoshop
+*Sales experience
+*Business development
+*Market research
+*Excellent time management
+*Multicultural communication skills
+*Translations expert
+*Computer skills: Microsoft Word, Excel, Power Point, Adobe Photoshop
  
 
 *WORK EXPERIENCE* 
@@ -24,16 +24,16 @@ SKILLS
 aNmoda Ltd, (Tokyo, Japan) 	9/2015 - now
 Executive assistant 
 
-* •	International sales
-* •	Online sales
-* •	Website design
-* •	Marketing research
-* •	Event coordinating 
-* •	Customer Support
-* •	Creative designer
-* •	Translation services
-* •	Photography session organization
-* •	Sales Negotiations 
+*International sales
+*Online sales
+*Website design
+*Marketing research
+*Event coordinating 
+*Customer Support
+*Creative designer
+*Translation services
+*Photography session organization
+*Sales Negotiations 
 
 ANA Trading, USA,  (Torrance, CA)                                                                                                                9/2014 – 8/2015 
 Sales Representative
