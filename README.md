@@ -1,14 +1,14 @@
- #Natalia Clemente 
+# Natalia Clemente 
 ### **Resume**
 
 732 W Imperial Ave, Apt 22 | El Segundo, CA, 90245 | 310-695-0499 | appaluza@gmail.com
 
-_EDUCATION_
+**EDUCATION**
 
 9/2010 – 6/2011 Niigata University of Management (Research Field: Marketing) 
 9/2005 – 8/2010 Far Eastern University of Humanities (Bachelors in Linguistics) 
 
-_SKILLS_
+**SKILLS**
  
 * Sales experience
 * Business development
@@ -19,7 +19,7 @@ _SKILLS_
 * Computer skills: Microsoft Word, Excel, Power Point, Adobe Photoshop
  
 
-_WORK EXPERIENCE_ 
+**WORK EXPERIENCE**
 
 aNmoda Ltd, (Tokyo, Japan) 	9/2015 - now
 Executive assistant 
