@@ -39,17 +39,17 @@ Executive assistant
 _9/2014 – 8/2015  ANA Trading, USA,  (Torrance, CA)_                                                                                     
 Sales Representative
 
-•	B2B sales, brokerage sales 
-•	Customer support
-•	Building up reliable relationships with customers and partners
-•	Market research
-•	Target-oriented sales
-•	Independent client acquisition
-•	High-value contract negotiation
-•	Organized meetings with vendors and customers
-•	Supply and demand calculation
-•	Competitor Analysis 
-•	Time management skills
+* B2B sales, brokerage sales 
+* Customer support
+* Building up reliable relationships with customers and partners
+* Market research
+* Target-oriented sales
+* Independent client acquisition
+* High-value contract negotiation
+* Organized meetings with vendors and customers
+* Supply and demand calculation
+* Competitor Analysis 
+* Time management skills
 
 _6/2011 – 2/2014 Autocom Japan Inc.,  (Yokohama, Japan)_                                                                                
 Sales Representative and Business Development manager 
