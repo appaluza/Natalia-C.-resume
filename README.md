@@ -1,39 +1,39 @@
-# Natalia Clemente 
-Resume
+ # Natalia Clemente 
+###_Resume_
 
 732 W Imperial Ave, Apt 22 | El Segundo, CA, 90245 | 310-695-0499 | appaluza@gmail.com
 
-EDUCATION
+_EDUCATION_
 
-Niigata University of Management                         Research Field: Marketing                              9/2010 – 6/2011
-Far Eastern University of Humanities                    Bachelors in Linguistics                                  9/2005 – 8/2010
+9/2010 – 6/2011 Niigata University of Management (Research Field: Marketing) 
+9/2005 – 8/2010 Far Eastern University of Humanities (Bachelors in Linguistics) 
 
-SKILLS
+_SKILLS_
  
-*Sales experience
-*Business development
-*Market research
-*Excellent time management
-*Multicultural communication skills
-*Translations expert
-*Computer skills: Microsoft Word, Excel, Power Point, Adobe Photoshop
+* Sales experience
+* Business development
+* Market research
+* Excellent time management
+* Multicultural communication skills
+* Translations expert
+* Computer skills: Microsoft Word, Excel, Power Point, Adobe Photoshop
  
 
-*WORK EXPERIENCE* 
+_WORK EXPERIENCE_ 
 
 aNmoda Ltd, (Tokyo, Japan) 	9/2015 - now
 Executive assistant 
 
-*International sales
-*Online sales
-*Website design
-*Marketing research
-*Event coordinating 
-*Customer Support
-*Creative designer
-*Translation services
-*Photography session organization
-*Sales Negotiations 
+* International sales
+* Online sales
+* Website design
+* Marketing research
+* Event coordinating 
+* Customer Support
+* Creative designer
+* Translation services
+* Photography session organization
+* Sales Negotiations 
 
 ANA Trading, USA,  (Torrance, CA)                                                                                                                9/2014 – 8/2015 
 Sales Representative
